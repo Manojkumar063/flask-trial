@@ -85,4 +85,4 @@ For any questions or suggestions, feel free to reach out through the contact for
 
 ---
 
-Made with ❤️ by [Your Name] 
+Made with MANOJKUMAR
